@@ -1,4 +1,4 @@
-- My name is Justin Byun, a third-year undergraduate attending Emory University as a Human Health major. Currently, I am working as an undergraduate research
+- My name is Justin Byun, a fourth-year undergraduate attending Emory University as a Human Health major. Currently, I am working as an undergraduate research
 assistant at the Comprehensive Laboratory of Untargeted Exposome Science (CLUES) at the Rollins School of Public Health.
 - How to reach me:
 - EMAIL: justin.byun@emory.edu
